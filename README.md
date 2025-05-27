@@ -1,0 +1,1 @@
+Dictionary = tRANSLATION OF LANGUAGE
