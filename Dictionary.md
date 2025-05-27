@@ -1,4 +1,4 @@
-
+Math is from true not from rakyat or Republics
 (:*)=/=OR
 +(+)+= Netral
 1+1=2 = y =honest
